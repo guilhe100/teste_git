@@ -6,4 +6,4 @@ mas ele n entendem isso
 
 oi puta 
 wqewqewqewq
-eu não qero isso
+eewqwqewqqwu não qero isso
